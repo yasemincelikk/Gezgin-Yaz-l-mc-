@@ -1,1 +1,1 @@
-# Gezgin-Yaz-l-mc-
+# Gezgin-Yazilimci
